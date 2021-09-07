@@ -1,6 +1,8 @@
 Coconut cookies
 ===============
 
+_Original recipe from Asia Czerwińska._
+
 Ingredients
 -----------
 
